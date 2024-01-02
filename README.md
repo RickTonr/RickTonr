@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RickTonr
 - 👀 I’m interested in AI
 - 🌱 I’m currently studying at the university
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on everyone
 - 📫 How to reach me: you could reach me on WeCHat @jianzhongtt
 
 <!---
